@@ -1,4 +1,4 @@
-<h1 align="left">Bruh why you stalking me 💀 go build something instead</h1>
+<h1 align="left">Well well well… look who’s stalking. What are you hoping to find, hmm?</h1>
 
 ###
 
