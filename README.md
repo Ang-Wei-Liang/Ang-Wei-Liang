@@ -1,4 +1,4 @@
-<h1 align="left">Hey there! Didn’t expect company — but feel free to look around 🌱</h1>
+<h1 align="left">Hey there! Feel free to look around 🌱</h1>
 
 ###
 
