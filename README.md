@@ -1,4 +1,4 @@
-<h1 align="left">Well well well… look who’s stalking. What are you hoping to find, hmm?</h1>
+<h1 align="left">You've stumbled onto classified intel. Careful — curiosity has consequences.</h1>
 
 ###
 
